@@ -1,3 +1,7 @@
+_Now actively maintained at [talk.whatthefuckjusthappenedtoday.com](https://talk.whatthefuckjusthappenedtoday.com/t/the-action-alliance-resources-for-the-resistance/4513)_
+
+---
+
 # THE ACTION ALLIANCE 
 Our organizations share a common mission: helping you identify the most impactful actions to take each day.
 
